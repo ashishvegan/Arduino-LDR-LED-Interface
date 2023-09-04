@@ -2,7 +2,7 @@ Please Subscribe YouTube Channel - Tech Vegan
 Link: https://bit.ly/2MFT35Q
 
 For Specific Project Requirement Please Email Me
-Email: technologyvegan@gmail.com
+WhatsApp: https://wa.me/919890345539
 
 Get Internet of Things, Arduino, Web Development, Ethical Hacking Videos, Computer Mobile Tips, etc.
 
